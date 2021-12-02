@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @herconaryangga15
 - 👀 I’m interested in drawing, and in github cases, I'm interested in coding stuffs and hacks such as photoshop on linux and script stuffs
-- 🌱 I’m currently learning arch based linux 
+- 🌱 I’m currently learning nothing XD
 - 📫 How to reach me? Here! my LinkTree: https://linktr.ee/herconaryangga.art
